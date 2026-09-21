@@ -1,1 +1,0 @@
-# KaitenShoten_ver7
